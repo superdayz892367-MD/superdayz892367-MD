@@ -1,4 +1,4 @@
-## Hi i'm Mario, a junior in high school, I haven't decided what to study for yet, my skills that i'm currently learning is Security+ prep, I don't have any areas of cybersecurity that interests me, 
+## Hi i'm Mario, a junior in high school, I haven't decided what to study for yet, my skills that i'm currently learning is Security+ prep, and I don't have any areas of cybersecurity that interests me.
 Contact me through superdayz.892367@gmail.com
 
 <!--
